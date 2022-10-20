@@ -1,5 +1,5 @@
 # Sayed Sirajum 👋
-**'software devloper and e-commerce devloper'**
+**'software devloper and Social Media Marketting Agent'**
 <!--
 **Sayedsirajum/Sayedsirajum** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
